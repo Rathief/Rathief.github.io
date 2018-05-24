@@ -1,5 +1,5 @@
 # Rafie Fadlurahman
-*Mahasiswa Ilmu Komputer IPB*\
+*Mahasiswa Ilmu Komputer IPB*
 
 *Komplek Unilver Blok D No. 13 Karang Mulya, Karang Tengah*\
 *+62 812-8021-2643*\
